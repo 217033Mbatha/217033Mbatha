@@ -37,7 +37,7 @@ I'm currently enrolled in the **Advanced Technical Academy** program, focusing o
 ## 📫 Let's Connect
 
 - LinkedIn: [Simphiwe Mbatha](https://www.linkedin.com/in/simphiwe-mbatha)
-- Email: [your-email@example.com](mailto:your-email@example.com)
+- Email: [your-email@example.com](SimphiweMbathasm22@gmail.com)
 
 ---
 
